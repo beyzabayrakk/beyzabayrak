@@ -1,4 +1,4 @@
-# beyzabayrak
+# Beyza Bayrak
 
 ### Hi there 👋
 
